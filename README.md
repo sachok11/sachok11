@@ -1,4 +1,4 @@
-## Hey there 🙋
+### Hey there 🙋
 I'm [Olha](www.linkedin.com/in/olhasachko), a student based in Ukraine.  
 
 I design and build whatever I can imagine.
